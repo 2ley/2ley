@@ -9,5 +9,5 @@ I joined GitHub's [Product Marketing Team](https://github.com/github/product-mar
 * Punchy headlines and merciless copy editing 🤺
 
 ## The More You Know... 🌈
-My 🇨🇳 husband speaks English with grace and grammatical precision to which native speakers can scarcely aspire. As for my Chinese, I can count, name a few foods, and announce bathroom intentions with needless specificity 🫣, proof that my inner child remains in the 4th grade.🤦‍ We live in Campbell, CA, sing in the [Silicon Valley Gay Men’s Chorus](https://svgmc.org/), and swim competitively with [SF Tsunami](https://www.sftsunami.org/). 🧜‍♂️🥇
+My 🇨🇳 husband speaks English with grace and grammatical precision to which native speakers can scarcely aspire. As for my Chinese, I can count, name a few foods, and announce bathroom intentions with needless specificity 🫣, proof that my inner child remains in the 4th grade.🤦‍ We live in [Campbell, CA](https://goo.gl/maps/HZSNqu8pEAuAuPKAA), sing in the [Silicon Valley Gay Men’s Chorus](https://svgmc.org/), and swim competitively with [SF Tsunami](https://www.sftsunami.org/). 🧜‍♂️🥇
 
