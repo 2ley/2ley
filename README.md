@@ -9,7 +9,7 @@ I joined GitHub's [Product Marketing Team](https://github.com/github/product-mar
 * Video conferencing gear for remote work 🤓
 
 ## The More You Know... 🌈
-My 🇨🇳 husband speaks English with grammatical precision to which native speakers can scarcely aspire. As for my Chinese, I can count, name a few foods, and announce bathroom intentions with needless specificity 🫣, proof that my inner child remains in the 4th grade🤦‍♂️. We live in Campbell, CA, sing in the Silicon Valley Gay Men’s Chorus 👯‍♂️, and swim competitively with SF Tsunami 🧜‍♂️🥇🦈
+My 🇨🇳 husband speaks English with grammatical precision to which native speakers can scarcely aspire. As for my Chinese, I can count, name a few foods, and announce bathroom intentions with needless specificity 🫣, proof that my inner child remains in the 4th grade.🤦‍ We live in Campbell, CA, sing in the Silicon Valley Gay Men’s Chorus 👯‍♂️, and swim competitively with SF Tsunami. 🧜‍♂️🥇🦈
 
 ## Prime Directive 🖖
  I budget 10% of my time to be of service to others. Let’s make a win-win together! 
